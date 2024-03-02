@@ -1,4 +1,4 @@
-## Hey, [Muslim here!](t.me/Moosleeem)  <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28px" height="28px">
+## Hey, [Muslim here!]([t.me/Moosleeem](https://www.t.me/Moosleeem))  <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28px" height="28px">
 
 𝓲 𝓪𝓶 𝓯𝓻𝓸𝓷𝓽𝓮𝓷𝓭-𝓭𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓻
 
